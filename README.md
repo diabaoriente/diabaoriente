@@ -6,9 +6,9 @@ tenho 15 anos
 
 gosto de fazer bolo
 
-escuto   musicsa
+escuto   musica
 
 faço pequenos desenhos
 
-e amo ajudar meus pais
+e amo ajudar meu pai
 
