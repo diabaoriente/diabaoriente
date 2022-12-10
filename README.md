@@ -9,7 +9,7 @@ sou inteligente,        toco bateria.
 amo escutar musica,
 jogos, 
 gosto de tirar foto.
-# estou aprendendo
+# 😉estou aprendendo
 aula computacional,
 ingles.
 # 📧 Contatos
